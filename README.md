@@ -1,11 +1,11 @@
   ×———— ♡ ◔◡◔  ————×
-- 👋 Hi, I’m @EclipsedWraith
-- 👀 I’m interested in ... sleeping, webcomics and games
-- 🌱 I’m currently learning ... JavaScript 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ... He/him
-- ⚡ Fun fact: ... uh🧍
+-♡┇ 👋 Hi, I’m @EclipsedWraith
+-♡┇ 👀 I’m interested in ... sleeping, webcomics and games
+-♡┇ 🌱 I’m currently learning ... JavaScript 
+-♡┇ 💞️ I’m looking to collaborate on ...
+-♡┇ 📫 How to reach me ...
+-♡┇ 😄 Pronouns: ... He/him
+-♡┇ ⚡ Fun fact: ... uh🧍
   ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣ ‧₊˚✧
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣀⣤⣴⣶⣾⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
